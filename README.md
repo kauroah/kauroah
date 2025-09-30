@@ -1,4 +1,4 @@
-# Hi there, I'm Ahmed 👋  
+# Hey, It's Ahmed 👋  
 
 🚀 **Software Engineer | Full-Stack Developer | Mobile & Web Enthusiast**  
 
